@@ -1,4 +1,4 @@
-
+custom scary shawarma kiosk Script offers the most advanced scary shawarma kiosk Script, with auto-upgrade and aimbot. Perfect for dominating any
 
 
 
